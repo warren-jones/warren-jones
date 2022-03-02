@@ -2,4 +2,4 @@ I grew up in Northern California (East Bay Area), studied Music at North Texas S
 
 I like to play with vintage vehicles: Cars, Tractors, and Snow-cats
 
-I especially like to spend time with my Family: Wife, three “adult” children, and seven grandchildren
+I especially like to spend time with my Family: My wife, three “adult” children, and seven grandchildren
